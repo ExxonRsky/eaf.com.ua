@@ -10,4 +10,4 @@
 >Быстрые сделки!
 >Безопасность и комфорт!
 
-###### Developed by ExxonRsky ######
+###### Developed by https://t.me/havelock_repos ######
